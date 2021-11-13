@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maneesha-Dodda
-- 👀 I’m interested in Computers  
+- 👀 I’m interested in Computers and programming 
 - 📫 How to reach me doddamaneesha2000@gmail.com
 
 <!---
